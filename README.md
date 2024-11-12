@@ -1,5 +1,2 @@
 # Testrep
-esrdkl;k"o
-  uyyuiop'
-  ;
-  lk
+Поток - ДПО ТС8 2024 год
